@@ -1,1 +1,1 @@
-# FsteTip.com
+# FateTip.com
